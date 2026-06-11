@@ -7,4 +7,10 @@
 
 <p align="center">
  <a
- 
+   
+<ins> ***aboutㅤme**</ins>ㅤ!!*
+
+<p align="center">
+<a
+
+my name is sowie/tzu(i love nicknames tho so u can call me anything els), i love love love making new friends and talking but i can be super awkward and super shy, so im super sorry for that :( 
