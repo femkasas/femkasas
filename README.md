@@ -18,7 +18,7 @@
 <p align="center">
  <a
 
- feel free to c+h and talk 2 me unless with my girlfrie (karu !!), u can always talk to me tho ^^
+ feel free to c+h and talk 2 me unless with my girlfrie (karu !!), u can always talk to me tho, preferably thru whispers so i dont lose ur chat ^^
 ***
  <p align="center">
   <a
