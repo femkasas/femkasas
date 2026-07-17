@@ -14,11 +14,16 @@
   <a
     
   im a tsukasa [fickin](https://kinhelp.carrd.co/). idm doubles just dont be annoying about it ty !!
+
+<p align="center">
+ <a
+
+ im (almost) 14 yo ! (29/08) im a tsukasa oshi though i love all of wxs! i love talking to people and making oomfies !! 
    
 <p align="center">
  <a
 
- feel free to c+h and talk 2 me unless with my girlfrie (karu !!), u can always talk to me tho, preferably thru whispers so i dont lose ur chat ^^
+ feel free to c+h and talk 2 me unless with my girlfrie (karu !!), u can always talk to me tho, w2i if im alone ^^
 ***
  <p align="center">
   <a
@@ -44,7 +49,7 @@
 <p align="center">
  <a
 
- [rentry](https://rentry.co/redenbeatrice)ㅤ.ㅤ[atabook](https://femkasa.atabook.org/)ㅤ.ㅤ[pinterest](https://pinterest.com/therealsowie)
+ [rentry](https://rentry.co/redenbeatrice)ㅤ.ㅤ[atabook](https://femkasa.atabook.org/)ㅤ.ㅤ[pronouns page](https://en.pronouns.page/@femkasa)
  ***
  ![](https://files.catbox.moe/fn24id.jpeg)
 
